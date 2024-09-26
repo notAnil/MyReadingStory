@@ -1,0 +1,4 @@
+The Battle of the Granicus in May 334 BC was the first of three major battles fought between Alexander the Great of Macedon and the Persian Achaemenid Empire. The battle took place on the road from Abydus to Dascylium, at the crossing of the Granicus in the Troad region, which is now called the Biga River in Turkey. In the battle Alexander defeated the field army of the Persian satraps of Asia Minor, which defended the river crossing. After this battle, the Persians were forced on the defensive in the cities that remained under their control in the region.
+
+[[Aristotle]]'s nephew served in the Alexander's army as the historian of the battle. 
+[[Darius III]]'s son in law was killed in the battle by [[Alexander the Great]].

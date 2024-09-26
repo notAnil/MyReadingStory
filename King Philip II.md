@@ -1,0 +1,1 @@
+Father of [[Alexander the Great]], formed the [[Hellenic League]] (The League of Corinth) after the [[Battle of Chaeronea]]. Formed an advanced army that was used by his son and heir Alexander the Great for his campaigns.

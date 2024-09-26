@@ -1,0 +1,1 @@
+A hypaspist (Greek: Ὑπασπιστής "shield bearer" or "shield covered") is a squire, man at arms, or "shield carrier". In Homer, Deiphobos advances "ὑπασπίδια" (hypaspídia) or under cover of his shield.[1] By the time of Herodotus (426 BC), the word had come to mean a high status soldier as is strongly suggested by Herodotus in one of the earliest known uses:

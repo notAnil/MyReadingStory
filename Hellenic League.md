@@ -1,0 +1,3 @@
+The League of Corinth, an association of Greek polities and city-states under the leadership of Philip II and Alexander the Great, between 337 and 323 BCE
+
+After winning the [[Battle of Chaeronea]] in 338 BC, [[King Philip II]] of Macedon forced most of the Greek states into a military alliance, the Hellenic League. Its goal was to make war on the Persian Achaemenid Empire to avenge the second Persian invasion of Greece in 480 BC. He managed to convince the other Greek states to elect him as the leader of the League and started preparing for the war.

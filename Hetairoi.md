@@ -1,0 +1,1 @@
+The Companions (Greek: ἑταῖροι, Greek: [heˈtairoi̯], hetairoi) were the elite cavalry of the Macedonian army from the time of King Philip II of Macedon, achieving their greatest prestige under Alexander the Great, and regarded as the first or among the first shock cavalry used in Europe.[1] Chosen Companions, or Hetairoi, formed the elite guard of the king (Somatophylakes).
