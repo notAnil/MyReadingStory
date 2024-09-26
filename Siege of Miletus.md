@@ -1,0 +1,2 @@
+The siege of Miletus was Alexander the Great's first siege and naval encounter with the Achaemenid Empire. This siege was directed against Miletus, a city in southern Ionia, which is now located in the Aydın province of modern-day Turkey. During the battle, Parmenion's son Philotas would be key in preventing the Persian Navy from finding safe anchorage. It was captured by Parmenion's son, Nicanor in 334 BC.
+He showed mercy to citizens of Miletus; although, some of them were killed right after the siege.
