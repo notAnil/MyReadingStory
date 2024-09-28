@@ -1,0 +1,1 @@
+Wrote about "Problem of Universals" and defended the position of [[Aristotle]] that Universals were in the object itself. 

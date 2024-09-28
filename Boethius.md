@@ -1,0 +1,1 @@
+Translated [[Aristotle]]'s rhetoric in the medieval times which was very important to keep philosophy alive. His writings had [[Stoicism]] and neo-[[Plato]] qualities; although, he was a Christian. 
