@@ -13,3 +13,7 @@ To the end of middle ages more philosophers were coming out.
 [[Peter Abelard]].
 
 Gothic art also carries a symbol of rebirth of Europe from dark ages of Europe. 
+
+[[Thomas Aquinas]] was a 12th (actually 13th but the movement is called 12th I presume) century Renaissance philosopher and one of the biggest of the movement; therefore, he was declared doctor of the church.
+
+[[Duns Scotus]] whom also separated belief from reason where he believed something but also stated that there was no proof for it. [[William of Ockham]] who developed an comprehensive empiric philosophy took his ideas further.
