@@ -1,0 +1,1 @@
+Why does man want to learn philosophy? Is he stupid? BWAHAHAHAHAHA

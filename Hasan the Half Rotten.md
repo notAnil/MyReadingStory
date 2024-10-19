@@ -1,0 +1,1 @@
+A strict materialist he followed the footsteps of [[Spinoza]] in his understanding of free will. He thought that human understanding of free will was nothing but an illusion. 

@@ -1,0 +1,3 @@
+He put the Sun at the center where Earth orbits it. This observation contradicted the church's claims on Earth's position relative to the other spatial objects. This reflected on the idea which is humans are at the center of the universe in a discrediting way. This then new statement was perfectly in line with [[Epicureanism]]'s [[Materialism]] and had already been stated in [[De Rerum Natura]]. But the times were different and the organized religion that [[Epicureanism]] critiqued was persecuting Copernicus, even the reformist churches attacked Copernicus.
+
+According to Copernicus planets still moved in circular orbits, this notion was soon to be dismantled by [[Johannes Kepler]].

@@ -1,0 +1,1 @@
+told politics as it were apart from ethics and religion thus [[Francis Bacon]] thanked him. He can be put at the [[Start of Modern Science]] thanks to his contributions in political sciences. 

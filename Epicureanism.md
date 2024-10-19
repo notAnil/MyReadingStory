@@ -12,6 +12,6 @@ Death is nothing for us. We only exist in a living state, when we die we don't e
 
 Infinite body and infinite void. We are formed from special atoms and just like atoms fall apart from each other objects dissolve and die.
 
-Has a big impact on modern understanding of science and [[Humanism]]. Really important on modern life perspective.
+Has a big impact on modern understanding of science and [[Humanism]]. Really important on modern life perspective. His rejection of divine intervention can be found again in  [[Start of Modern Science]] and the rest.
 
 [[De Rerum Natura]].

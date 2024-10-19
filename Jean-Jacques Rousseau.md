@@ -1,0 +1,6 @@
+Jean-Jacques Rousseau, an 18th-century French philosopher, is a key figure in the Enlightenment, though he diverged from its rationalist currents. He emphasized individual freedom, natural human goodness, and the corrupting influence of society. In "The Social Contract," Rousseau introduced the general will, arguing that true freedom arises when personal desires align with collective interests, fostering a moral obligation to act for the common good.
+
+In "Emile," he advocated for a natural approach to education, emphasizing the nurturing of a child's innate curiosity and moral development. His friendship with [[David Hume]] was initially marked by mutual respect but soured due to personal misunderstandings and philosophical disagreements, reflecting their contrasting views on human nature and society. Rousseau's critique of civilization in "Discourse on the Origin and Basis of Inequality Among Men" highlighted the tension between natural liberty and social constraints. His ideas significantly influenced revolutionary movements and discussions on democracy, education, and human rights, making him a precursor to modern political thought and Romanticism.
+//AI
+Was a key figure in [[The French Revolution]].
+Had liberal ideas about education and how we should make the society in a way that enables us to manifest our pure desires and feelings.

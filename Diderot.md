@@ -1,0 +1,2 @@
+Helped liberal writers such as [[Voltaire]] and [[Jean-Jacques Rousseau]] by publishing their works.
+Published an encyclopedia that had 35 issues and sold almost 4500 amounts that made French culture shine in Europe.
